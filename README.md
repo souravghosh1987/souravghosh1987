@@ -30,7 +30,7 @@ Because maybe:
 
 If you're also building something scrappy,  
 or want to improve one of my janky projects —  
-shoot me a message on [LinkedIn](https://www.linkedin.com/in/souravghosh1987).
+shoot me a message on [LinkedIn](https://www.linkedin.com/in/souravghoshji/).
 
 ---
 
